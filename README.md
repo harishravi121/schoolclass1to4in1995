@@ -3,3 +3,5 @@ Learnt fantastic codes happily in turtle and in vijayawada played a bit in cousi
 I used a floppy at age 6 in 1995. To use wordstar digger etc.
 
 Made traffic signal turtle and painted in many competitions and won.
+
+Regret not requesting for turtle from school to home. also repaired a speedometer partially at age 8..
