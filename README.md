@@ -8,4 +8,4 @@ Regret not requesting for turtle from school to home. also repaired a speedomete
 
 Speedo meter testers looked as precursors to first electro mechanical computers.
 
-A note to add is the mechanical calculator in museum and vacuum tube computer which are amazing to use someday on a sponsored trip.
+A note to add is the mechanical calculator in museum and vacuum tube computer which are amazing to use someday on a sponsored trip. of  1600-1800s
